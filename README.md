@@ -14,3 +14,4 @@ Queer guy who likes to sail the high seas from time to time (all the time). If y
   ✄┈┈┈┈꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷࣭
 
 I love MGS, DMC, R1999, and ridiculous [80's-90's horror movies](https://letterboxd.com/nrgyyyyxvi/). I also really like my friends :]
+Modding all my games is an addiction & I hope to become a modder myself.
